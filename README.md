@@ -11,5 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my learning journey 
 - 📫 How to reach me: https://twitter.com/nnamani_neri
 - 😄 Pronouns: (HE/HIS/HIM) 
-- ⚡ Fun fact: I do not know how to swim 🤦🏽‍♂️
-
+- ⚡ Fun fact: I love football
